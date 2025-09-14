@@ -10,7 +10,6 @@
 
 ## Anyways! I am horrible at English but I can manage my spelling or understanding in speech, sucks. Oh yeah, I did mention I love making ocs! If you want to see more feel free to join me in roleplays or you can check out my Toyhouse linked to the github! My main OC is Ashida so far.
 
-## Example piece: 
+## LOOK AT MY BABY  WBHJ: 
 
-![a](https://cdn.discordapp.com/attachments/1386831328061685870/1414994372948135986/106992475_yhbYYaoxH7eelsZ.png?ex=68c2e933&is=68c197b3&hm=f62d0b418b3952d3827cf9f241a0a5038ac62076361dded13f27c667e08c13a2)
-
+![a](https://media.discordapp.net/attachments/1386831328061685870/1416826607053570209/6fabfc09566e135bcda53d7c542c1c32.png?ex=68c8421a&is=68c6f09a&hm=9c2a69c67c4870557ec3d577c8f91b39e47a0d41af6440da775d26c9d6dfe8b5&=&format=webp&quality=lossless&width=636&height=519)
