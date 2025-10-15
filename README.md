@@ -32,6 +32,4 @@
 ### He is forgotten yet he is in them.
 
 
-## LOOK AT MY BABY  WBHJ: 
 
-![a](https://media.discordapp.net/attachments/1386831328061685870/1416826607053570209/6fabfc09566e135bcda53d7c542c1c32.png?ex=68c8421a&is=68c6f09a&hm=9c2a69c67c4870557ec3d577c8f91b39e47a0d41af6440da775d26c9d6dfe8b5&=&format=webp&quality=lossless&width=636&height=519)
