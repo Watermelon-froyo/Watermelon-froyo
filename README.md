@@ -8,4 +8,3 @@
 
 ### INT : Fellow roleplayers, artist, honestly just anybody who isn't on the DNI list! 
 
-# BYI !!! English is tricky for me, I have MRELD. I hope you understand.
