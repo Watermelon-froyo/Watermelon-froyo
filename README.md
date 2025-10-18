@@ -1,10 +1,9 @@
-![a](https://i.pinimg.com/736x/69/15/6e/69156e021baace50703a16daf57da153.jpg)
+![a](https://i.pinimg.com/736x/a1/46/75/a1467594b2115b895deb6dd74652b4ea.jpg)
 
 # Iodine / Chemical . Male . 17yrsold
 
-## You may have seen me in roleplays because that's all I do in Ponytown besides sitting at docks making skins. I am big into making ocs and animations, it's a passion of mine.
+## Hello! I'm Iodine or Chemical. I don't care what you call me as long as it's appropriate!! 
 
-### Basic DNI : Discrimators, drama in general [It gets overwhelming], and just problematic stuff. I will not hesitate to hide you or block your messages.
+## If you use numbers in your text or weird fancy font this isn't personal but I won't interact with you. I struggle with ENglish as it is and it'll just make it harder for me to understand you.
 
-### INT : Fellow roleplayers, artist, honestly just anybody who isn't on the DNI list! 
 
