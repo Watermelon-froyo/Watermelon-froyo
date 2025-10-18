@@ -8,4 +8,4 @@
 
 ### INT : Fellow roleplayers, artist, honestly just anybody who isn't on the DNI list! 
 
-## Anyways! I am horrible at English but I can manage my spelling or understanding in speech, sucks. Oh yeah, I did mention I love making ocs! If you want to see more feel free to join me in roleplays or you can check out my Toyhouse linked to the github! My main OC is Ashida so far. I GO FERAL WHEN IT COMES TO MAKING LORE AND WORLDBUILDING!
+# BYI !!! English is tricky for me, I have MRELD. I hope you understand.
