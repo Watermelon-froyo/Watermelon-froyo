@@ -7,6 +7,8 @@
 
 I NEED TO GET THIS OUT, BUT WHY IS IT WHEN PEOPLE TURN 18 THEY THINK THEY'RE SO MATURE NOW 😭??
 
+Also I don't have much of a int/dni list, but all I ask is for anyone 15 or below not to friend me!
+
 
 
 
