@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://i.imgur.com/Jw4iFRH.png" alt="desc" />
+  <img src="https://imgur.com/a/LJ8MrP3" alt="desc" />
 </p>
 
 ![](https://komarev.com/ghpvc/?username=Watermelon-froyo&label=Accounts+balance)
