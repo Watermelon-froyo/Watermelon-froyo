@@ -3,7 +3,7 @@
 <p align="center">[.."Why are roaches & humans considered the same? Because they can both be exterminated!"..]</p>
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/8f/9a/2c/8f9a2c899f9cb8d2d6db7debf8306885.gif"alt="Description of image">
+  <img src="https://i.pinimg.com/originals/8f/9a/2c/8f9a2c899f9cb8d2d6db7debf8306885.gif"alt="Description of image"length="10">
 </p>
 
 <p align="center"><strong>.   .   .</strong></p>
