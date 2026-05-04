@@ -2,7 +2,7 @@
 
 <p align="center">[.."Why are roaches & humans considered the same? Because they can both be exterminated!"..]</p>
 
-<p align="center">[‗ ❍· ꕥ ·❍‗ ]</p>
+<p align="center">‗ ❍· ꕥ ·❍‗ </p>
 
 <p align="center">
   <img
