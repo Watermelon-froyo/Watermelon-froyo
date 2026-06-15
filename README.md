@@ -11,7 +11,7 @@ src="https://i.imgur.com/x9bwZLr.png"alt="Description of image"width="200">
 <p align="center"><strong>.   .   .</strong></p>
 
 <p align="center">[Ashida/Iodine]</p>
-<p align="center">[17]</p>
+<p align="center">[18]</p>
 <p align="center">[EST]</p>
 <p align="center">[He/Him]</p>
 <p align="center">[Artist & Author]</p>
