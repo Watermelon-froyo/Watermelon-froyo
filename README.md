@@ -23,3 +23,7 @@ src="https://i.imgur.com/x9bwZLr.png"alt="Description of image"width="200">
   <img
 src="https://i.imgur.com/hvvna3l.png">
 </p>
+
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=BloodLord202&label=Bounty-Money&color=dc143c"
+</p>
