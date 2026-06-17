@@ -24,6 +24,8 @@ src="https://i.imgur.com/x9bwZLr.png"alt="Description of image"width="200">
 src="https://i.imgur.com/hvvna3l.png">
 </p>
 
+pst...my oc strawpage is being worked on..
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=BloodLord202&label=Bounty-Money&color=dc143c"
 </p>
