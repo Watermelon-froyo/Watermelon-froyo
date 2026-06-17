@@ -29,4 +29,3 @@ src="https://i.imgur.com/hvvna3l.png">
   <img src="https://komarev.com/ghpvc/?username=BloodLord202&label=Bounty-Money&color=dc143c"
 </p>
 
-pstt..my oc strawpage is being worked on..shh
