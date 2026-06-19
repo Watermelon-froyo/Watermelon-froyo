@@ -24,4 +24,8 @@ src="https://i.imgur.com/x9bwZLr.png"alt="Description of image"width="200">
 src="https://i.imgur.com/hvvna3l.png">
 </p>
 
+<p align="center">
+  <a href="https://ocshowcases.straw.page">OC INFORMATION/ROLEPLAY</a>
+</p>
+
 
